@@ -26,7 +26,7 @@ Personality can't be used to predict EQ.
 
 - (Gavin) - A few sentences prior, the author said that some people naturally have higher EQ than others.  So there is something about a person that allows some people to start off with more EQ than others even if the author claims that EQ can be developed in everyone.  Some people will have advantages over others.  I have read that some personalities would have advantages over other personalities.  I have read Dr. A J Drenth's INTP book because I am an INTP.  Based on my reading - the INTP can acquire good EQ but it will probably be in their 30s, 40s, or 50s.  Because of this, the young INTP is not put into influential and powerful leadership positions in our society.
 
-- (Gavin) - Is it good to have people with low IQ and high EQ end up in positions of influence and power?  I think you ideally want to select people with high IQ and high EQ and the right character for positions of influence and power.  Start With Why by Simon Sinek speaks toward character and this book seems to ignore character when "considering the whole person".
+- (Gavin) - Is it good to have people with low IQ and high EQ end up in positions of influence and power?  I think you ideally want to select people with high IQ and high EQ and the right character for positions of influence and power.  Start With Why by Simon Sinek speaks toward character and this EQ 2.0 book seems to ignore character when "considering the whole person".
 
 Those who score low in EQ can catch up with those who score high in EQ.
 
@@ -76,7 +76,7 @@ Conflicts at work tend to fester when people passively avoid problems because pe
 16. seek the whole picture
 17. catch the mood of the room
 
-- (Gavin) - I think thee is overlap with Carnegie's How to Win Friends and Influence People.  I am skeptical of people's ability to step into other people's shoes - especially when the personanlity types are so different.
+- (Gavin) - I think there is overlap with Carnegie's How to Win Friends and Influence People.  I am skeptical of people's ability to step into other people's shoes - especially when the personanlity types are so different.
 
 ## relationship management strategies
 
