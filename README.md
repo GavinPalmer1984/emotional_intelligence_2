@@ -34,6 +34,22 @@ Those who score low in EQ can catch up with those who score high in EQ.
 
 ## what emotional intelligence looks like: understanding the four skills
 
+The four skills pair up under two categories: personal and social.  The personal is made up of self awareness and self management skills.  The social is your ability to understand other people's moods, behavior and motives in order to improve the quality of your relationship.
+
+- (Gavin) - If all people were good at the personal category then the social category would not be as important.  I think some personalities will be naturally stronger or weaker in one category or the other.
+
+Listening and observing are the most important elements of social awareness.
+
+Relationship management often taps into your abilities in the first three emotional intellgience skills: self-awareness, self-management, and social awareness.
+
+Solid relationships are something that should be sought and cherished.  The difference between an interaction and a relationship is a matter of frequency.  It's a product of the quality, depth, and time you spend interacting with another person.
+
+Relationship management poses the greatest challenge for most people during times of stress.
+
+Conflicts at work tend to fester when people passively avoid problems because people lack the skills needed to initiate a direct yet constructive conversation.
+
+- (Gavin) - If I rarely feel fear and shame then I will have more difficulty recognizing it in others.  And so the development of self awareness and self control can lead to situations where it becomes harder to have social awareness.
+
 ## digging in: an action plan to increase your eq
 
 ## self-awareness strategies
