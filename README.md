@@ -79,3 +79,21 @@ Conflicts at work tend to fester when people passively avoid problems because pe
 - (Gavin) - I think thee is overlap with Carnegie's How to Win Friends and Influence People.  I am skeptical of people's ability to step into other people's shoes - especially when the personanlity types are so different.
 
 ## relationship management strategies
+
+1. be open and be curious
+2. enhance your natural communication style
+3. avoid giving mixed signals
+4. remember the little things that pack a punch
+5. take feedback well
+6. build trust
+7. have an "open door" policy
+8. only get mad on purpose
+9. don't avoid the inevitable
+10. acknowledge the other person's feelings
+11. complement the person's emotions or situation
+12. when you care, show it
+13. explain your decisions, don't just make them
+14. make your feedback direct and constructive
+15. align your intention with your impact
+16. offer a "fix-it" statement during a broken conversation
+17. tackle a tough conversation
