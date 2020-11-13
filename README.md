@@ -58,4 +58,24 @@ Conflicts at work tend to fester when people passively avoid problems because pe
 
 ## social awareness strategies
 
+1. greet people by name
+2. watch body language
+3. make timing everything
+4. develop a back-pocket question
+5. don't take notes at meetings
+6. plan ahead for social gatherings
+7. clear away the clutter
+8. live in the moment
+9. go on a 15-minute tour
+10. watch eq at the movies
+11. practcie the art of listening
+12. go people watching
+13. understand the rules of the culture game
+14. test for accuracy
+15. step into their shoes
+16. seek the whole picture
+17. catch the mood of the room
+
+- (Gavin) - I think thee is overlap with Carnegie's How to Win Friends and Influence People.  I am skeptical of people's ability to step into other people's shoes - especially when the personanlity types are so different.
+
 ## relationship management strategies
